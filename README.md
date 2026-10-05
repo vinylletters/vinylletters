@@ -1,22 +1,26 @@
-<img width="736" height="414" alt="850e96c7e43eaffe713a90d5dda3e54f" src="https://github.com/user-attachments/assets/5ba6e049-2028-4e41-a050-d74e9c81b7a8" />
+<img width="2048" height="805" alt="tumblr_937f5bbc63242b8cf44cb4538c74c80b_466edeb5_2048" src="https://github.com/user-attachments/assets/59722a5f-e81d-4314-baa7-b5b8ce69a313" />
 
 
 
-hi im clara or cliff or aeacus / i he.her
 
-c*h is alaways encouraged
-
-I love my friends. Im acutally Icarus he's a liar he.
-
-<img width="736" height="57" alt="tumblr_43cdcc2f50a8992397c3d90514c49680_ff150425_2048" src="https://github.com/user-attachments/assets/b5b6d607-58ac-425b-be35-5a78a26fd29c" />
+$$ \color{#f8c94d}{\text{hellloo im clara or cliff}} $$
 
 
-I love ultrakill and backrooms and OCS and Roblox admins and evade yeah
+$$ \color{#d98139}{\text{im a big backrooms, ULTRAKILL, and eateot fan}} $$
 
-w2i always  interact freely probably late response because I'm always offtab
+$$ \color{#BA4228}{\text{lots more in my strawpage so check that out if u want!!!!!}} $$
 
-minos prime #1 fan ever 
+<img width="1280" height="84" alt="IMG_9241" src="https://github.com/user-attachments/assets/3e3239b4-bf1a-49aa-81ac-2afc56801340" />
 
 
-<img width="736" height="414" alt="7b432669de225b2cd1c8d1ed81e920d2" src="https://github.com/user-attachments/assets/d5c7f74b-74a6-4716-b01a-5f5701999c88" />
+
+$$ \color{#BA4228}{\text{w2i always, c*h is also always fine with me!!}} $$
+
+$$ \color{#d98139}{\text{sign my ata for ONE nugget donated to icarus}} $$
+
+$$ \color{#f8c94d}{\text{offtab like all the time so sorryif I don't respond immediately}} $$
+
+<img width="1920" height="151" alt="tumblr_eb696b52fd9befa930b23c5a81669375_5f67c4d0_2048" src="https://github.com/user-attachments/assets/dbe6c689-d223-45e2-96a9-7e4b1fac6837" />
+
+
 
